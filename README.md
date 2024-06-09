@@ -7,6 +7,6 @@
 * [PornX AI](https://PornX.ai) uses artificial intelligence to create the naughty pics of your dreams.
 * [Penly](https://Penly.ai) offers a quartet of AI-powered adult services: undress photos instantly, swap faces,
 * [Undress App](https://Undress.app) can digitally remove the clothes from any photo you give it.
-* [Bare.Club] (https://Bare.Club) takes your regular, boring photos and turns them into something completely NSFW.
-* [DeepSwap](DeepSwap.ai) lets you create your own XXX deepfake videos, images and GIFs with just a couple steps.
-* [Deep Nude] (https://Deep-Nude.ai) can and will undress your personal photos for free. 
+* [Bare.Club](https://Bare.Club) takes your regular, boring photos and turns them into something completely NSFW.
+* [DeepSwap](https://DeepSwap.ai) lets you create your own XXX deepfake videos, images and GIFs with just a couple steps.
+* [Deep Nude](https://Deep-Nude.ai) can and will undress your personal photos for free. 
